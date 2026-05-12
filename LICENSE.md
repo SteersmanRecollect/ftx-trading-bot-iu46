@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ftx trading bot with custom ftx trading bot Plugin | latency-optimization + futures-arbitrage. Featuring latency-optimization and futures-arbitrage, it's the best
 
 
 
